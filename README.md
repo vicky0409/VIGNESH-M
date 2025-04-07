@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @vicky0409
+- 👀 I’m interested in learning
+- 🌱 I’m currently learning python
+- 📫 How to reach me ...vignesh2008mn@gmail.com
